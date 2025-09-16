@@ -6,7 +6,7 @@ Looking forward to develop useful technological solutions while broadening my sk
 
 
 ## 🎓 Education  
-- **B.Sc. in Information Systems** – [IFSP - Science, Technology and Education Federal Institute of São Paulo ] (2025 – Present)  
+- **B.Sc. in Information Systems** – [IFSP - São Paulo's Federal Institute of Science, Technology and Education ] (2025 – Present)  
 
 
 ## 🛠 Technical Skills  
